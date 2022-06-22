@@ -1,1 +1,1 @@
-![Uploading Screenshot (36).png…]()
+![Screenshot (36).png…]()
